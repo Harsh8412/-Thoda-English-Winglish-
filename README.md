@@ -1,3 +1,19 @@
+( COMPLETED VIDEOS NO. :- 0, 1, 2, 91, )
+
+04/10/05 (Day 1) :-
+
+1. got up -> uthna
+2. getting off -> utarna
+3. put on -> phehenna
+4. Mumbling -> badh - badana
+5. rinse and rinse off-> dhona ya kulla karna
+6. bolt -> khunde lagana type
+7. use well before say something (makes sentence good to say)
+8. even -> bhi
+9. nothing as such -> aesa kuch nhi hai
+10. actually -> darasal (baat ye hai)
+11. although -> wese to (aapke baat sahi haI)
+
 02/10/2025 (Day 91)
 
 -> Tum mere acche dost ho, balki bahut acche dost ho !!
@@ -55,6 +71,7 @@ english :- many trees were uprooted to make/for making the road.
 -> wo har mahine aapke ghr aata hoga naa !!
 english :- he would be coming to your house every month.
 english :- he must be coming to your house every month.
+
 
 -> use waha jaane ki jarurat padhti hii nhi !!
 english :- he doesn't need to go there.
