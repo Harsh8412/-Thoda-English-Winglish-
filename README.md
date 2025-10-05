@@ -8,7 +8,7 @@
 4. Mumbling -> badh - badana
 5. rinse and rinse off-> dhona ya kulla karna
 6. bolt -> khunde lagana type
-7. use well before say something (makes sentence good to say)
+7. use (well) before say something (makes sentence good to say)
 8. even -> bhi
 9. nothing as such -> aesa kuch nhi hai
 10. actually -> darasal (baat ye hai)
